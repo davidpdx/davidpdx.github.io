@@ -1,1 +1,0 @@
-# davidpdx.github.io stub
